@@ -3,6 +3,7 @@ Personally, I’ve had the most success in getting people to attend by personall
 
 ## The message to send:
 Subject: Intimate Techstars Dinner August 22nd
+
 Hi Amy, 
 
 In an effort to bring together the Techstars community into a more solid network, I’ve connected with Louis Huynh (Techstars Alumni Director) to start hosting more intimate dinner parties in Colorado to connect with other founders and members in the network. 
